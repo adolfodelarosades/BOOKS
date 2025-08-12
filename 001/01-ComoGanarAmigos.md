@@ -1,5 +1,7 @@
 # Cómo ganar amigos e influir sobre las personas
 
+<img width="243" height="360" alt="image" src="https://github.com/user-attachments/assets/d23c095b-c9b7-4abd-b58f-e3d70db1abf2" />
+
 * De Dale Carnegie
 * Narrado por Franco Patiño
 * Duración 9 horas y 6 mins
