@@ -15,16 +15,23 @@ Dale Carnegie
 
 ## ALGUNOS PUNTOS IMPORTANTES DEL CONTENIDO:
 
-### Primera Parte: TÉCNICAS FUNDAMENTALES PARA TRATAR CON EL PRÓJIMO 
+### Primera Parte: 
+#### TÉCNICAS FUNDAMENTALES PARA TRATAR CON EL PRÓJIMO 
+
 (Si quieres recoger miel, no des puntapiés a la colmena – El gran secreto para tratar con la gente).
 
-### Segunda Parte: SEIS MANERAS DE AGRADAR A LOS DEMÁS
+### Segunda Parte: 
+#### SEIS MANERAS DE AGRADAR A LOS DEMÁS
+
 (Haga esto y será bienvenido en todas partes – Una manera sencilla de causar una buena impresión – Fácil manera de convertirswe en un buen conversador – Cómo interesar a la gente).
 
-### Tercera Parte LOGRE QUE LOS DEMÁS PIENSEN COMO USTED
+### Tercera Parte 
+#### LOGRE QUE LOS DEMÁS PIENSEN COMO USTED
+
 (No es posible ganar una discusión – Un medio seguro de conquistar enemigos – Si se equivoca usted, admítalo – El secreto de Sócrates – Cómo obtener cooperación – Un llamado que gusta a todos).
 
-### Cuarta Parte SEA UN LÍDER
+### Cuarta Parte 
+#### SEA UN LÍDER
 (Cómo criticar y no ser odiado por ello – Hable primero de sus propios errores – A nadie le gusta recibir órdenes – Permita que la otra persona salve su prestigio – Procure que la otra persona se sienta satisfecha de lo que usted quiere).
 
 ## ÍNDICE:
